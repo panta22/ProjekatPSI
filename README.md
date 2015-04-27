@@ -1,4 +1,0 @@
-# ProjekatPSI
-Tim Dusani
-gdgsdf
-
